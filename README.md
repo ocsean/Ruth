@@ -1,0 +1,2 @@
+# Ruth
+Redirect to RuthToo
